@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hatimthegreat07
+- 👀 I’m interested in python
+- 🌱 I’m currently learning python
+- 📫 How to reach me by crhatim3@gmail.com
+- ⚡ Fun fact: overthinker 
